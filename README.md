@@ -2,6 +2,7 @@
 
 ## Quem sou eu?
 Eu sou quem sou... Brincadeira 😆 👀.
+
 Sou Brasileiro, nasci em 1987, na cidade de São Paulo, gosto de escrever, aprender, ensinar, orar e brincar com meus filhos 🧒 🧒 🧒.
 Resido atualmente em Caraguatatuba, litoral norte de São Paulo, sou funcionário público Estadual, trabalho na Diretoria de Ensino Região de Caraguatatuba (Secretaria de Estado da Educação).
 
