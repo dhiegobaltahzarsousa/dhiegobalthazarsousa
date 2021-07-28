@@ -8,7 +8,7 @@ Resido atualmente em Caraguatatuba, litoral norte de São Paulo, sou funcionári
 ## Soft Skils 🛄
 Sou resiliente, amo ajudar as pessoas e tenho fácil aprendizado.
 
-Para saber mais um pouquinho de mim, segue meu [linkedin](https://www.linkedin.com/in/dhiego-henrique-balthazar-de-sousa-aa6a8295/).
+Para saber mais um pouquinho de mim, segue meu [LinkedIn](https://www.linkedin.com/in/dhiego-henrique-balthazar-de-sousa-aa6a8295/).
 
 <!---
 dhiegobalthazarsousa/dhiegobalthazarsousa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
